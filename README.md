@@ -4,4 +4,4 @@
 
 ໒　pt　status [meanings](https://rentry.co/causticsoda)
 
-໒　this [moron](https://github.com/rickgrimesirl) /r 
+໒　this [moron](https://github.com/rickgrimesirl) /r 🩷
