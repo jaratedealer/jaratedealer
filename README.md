@@ -1,4 +1,4 @@
-![](https://media.discordapp.net/attachments/1176403450297327617/1226198232757960724/tumblr_96079ba8d17421f69fbeb42686a19a6e_c0716561_1280__1_-removebg-preview_1.png?ex=6623e518&is=66117018&hm=f5a581550ffd6fbcd7bb367da0b3f22312fc7fb456669f2604d03fb9a92d7199&=&format=webp&quality=lossless&width=575&height=565)
+![](https://media.discordapp.net/attachments/1176403450297327617/1226199986266443796/0a29714d267c993a6815e857018c4d7b-removebg-preview_1.png?ex=6623e6ba&is=661171ba&hm=43be442e0ac323102a395a3b4ad6e06bb7c9a674c330c4fb34dede5e87e53f5d&=&format=webp&quality=lossless&width=703&height=537)
 
 ^ me n my boyf 
 
