@@ -2,8 +2,6 @@
 
 ^ me n my [boyf](https://github.com/rickgrimesirl)
 
-໒　please　sign my [guestbook](https://negansmith.123guestbook.com/) !! i　*normally* reply 
-
 ໒　pt　status [meanings](https://rentry.co/causticsoda)
 
 *** 
