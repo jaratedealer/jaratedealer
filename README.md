@@ -1,8 +1,4 @@
-![](https://media.discordapp.net/attachments/1176403450297327617/1232423841289211984/Untitled466_20240423151154.png?ex=662967a5&is=66281625&hm=ea47898360b5a2915f07bfb847323df9f1e3c16e1013a66e572f55a95d0a552c&=&format=webp&quality=lossless&width=917&height=526)
-
-
-
-
+![](https://64.media.tumblr.com/f0caa1e6b094f2316620273f7f14f5b1/4dfcc02ceee3905f-fc/s640x960/da29644abd2c31e0537a96bfe06786c19bbe16af.gif)
 
 
 
