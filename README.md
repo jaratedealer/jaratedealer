@@ -6,7 +6,7 @@ real life transfem sniper
 
 [sign here !](https://retrospring.net/@jaratedealer)
 
-
+[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=6ee6c3uiykzyf00n8qqgt3t8m&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=d1803d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 
