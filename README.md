@@ -5,8 +5,8 @@ real life transfem sniper
 [irls explained](https://irlsexplained.carrd.co/)
 
 [sign here !](https://retrospring.net/@jaratedealer)
-
 listening to
+
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=6ee6c3uiykzyf00n8qqgt3t8m&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=d8792c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
