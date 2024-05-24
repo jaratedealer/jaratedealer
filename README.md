@@ -1,6 +1,6 @@
 ![](https://64.media.tumblr.com/a58b703e20766b29a1a6ba833e5679bc/99a13730feb13918-e0/s400x600/015cd5a8fe26044d36e4dd7e5ce40cf659f1138f.gifv)
 
-　　real life sniper & transfem scout
+　sniper truther & real life transfem scout
 
 　　[sign here !](https://retrospring.net/@jaratedealer) i pretty much always respond
 
