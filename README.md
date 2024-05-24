@@ -2,7 +2,7 @@
 
 　　sniper truther & real life transfem scout
 
-　　[sign here !](https://retrospring.net/@jaratedealer) i pretty much always respond
+　　[sign here !](https://retrospring.net/@jaratedealer) (PLEASEEE!!!) i pretty much always respond
 
 　　i usually follow whoever i find cool but dont mind softblocks if it makes you uncomfortable !!
 
