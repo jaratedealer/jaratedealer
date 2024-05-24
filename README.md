@@ -2,9 +2,9 @@
 
 real life transfem sniper 
 
-[irls explained](https://irlsexplained.carrd.co/)
-
 [sign here !](https://retrospring.net/@jaratedealer)
+
+i usually follow whoever i find cool but dont mind softblocks if it makes you uncomfortable !!
 
 listening to
 
