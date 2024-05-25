@@ -14,7 +14,7 @@
 
 　　[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fgjbae1212%2Fhit-counter&count_bg=%23000000&title_bg=%23D56550&icon=&icon_color=%230A0808&title=visits&edge_flat=true)](https://hits.seeyoufarm.com)
 
-
+　　i unironically dont know where the new tf2 area is on the safe server tell me where if you know... ^u^'
 
 
 
