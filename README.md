@@ -4,7 +4,7 @@
 
 　　speedingbullet truther !!! ID of sniper & red scout
 
-　　[sign here !](https://retrospring.net/@coffeencola) (PLEASEEE!!!) i pretty much always respond
+　　[sign here](https://retrospring.net/@coffeencola) (PLEASEEE!!!) i pretty much always respond
 
 　　i usually follow whoever i find cool but dont mind softblocks if it makes you uncomfortable !!
 
