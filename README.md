@@ -1,6 +1,8 @@
+　　USER CHANGE ! - JARATEDEALER --> COFFEENCOLA 
+
 ![](https://64.media.tumblr.com/a58b703e20766b29a1a6ba833e5679bc/99a13730feb13918-e0/s400x600/015cd5a8fe26044d36e4dd7e5ce40cf659f1138f.gifv)
 
-　　sniper truther & real life transfem scout
+　　speedingbullet truther & real life scunt 
 
 　　[sign here !](https://retrospring.net/@jaratedealer) (PLEASEEE!!!) i pretty much always respond
 
@@ -14,7 +16,7 @@
 
 　　[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fgjbae1212%2Fhit-counter&count_bg=%23000000&title_bg=%23D56550&icon=&icon_color=%230A0808&title=visits&edge_flat=true)](https://hits.seeyoufarm.com)
 
-　　i normally dont int first !! but i am currently trying to make friends so bare with me ^u^
+　　i normally dont int first !! but i am currently trying to make friends so bare with me ^u^ also my rentry changes like every week..
 
 
 
