@@ -16,7 +16,7 @@
 
 　　[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fgjbae1212%2Fhit-counter&count_bg=%23000000&title_bg=%23D56550&icon=&icon_color=%230A0808&title=visits&edge_flat=true)](https://hits.seeyoufarm.com)
 
-　　i normally dont int first !! but i am currently trying to make friends so bare with me ^u^ also my rentry changes like every week..
+　　rest in peace to my rentry views.. worth the url change though ^u^ 
 
 
 
