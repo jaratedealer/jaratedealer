@@ -1,12 +1,11 @@
-　　USER CHANGE ! - JARATEDEALER --> COFFEENCOLA 
 
-![](https://64.media.tumblr.com/a58b703e20766b29a1a6ba833e5679bc/99a13730feb13918-e0/s400x600/015cd5a8fe26044d36e4dd7e5ce40cf659f1138f.gifv)
-
-　　swordvan & bloodysuit truther !!
-
-　　[sign here](https://retrospring.net/@coffeencola) i pretty much always respond
+　　![](https://files.catbox.moe/buydmd.png)
+  
+　　swordvan & bloodysuit truther !! i love every single merc 
 
 　　i follow whoever i find cool but dont mind softblocks if it makes you uncomfortable !!
+  
+　　[sign here](https://retrospring.net/@coffeencola) i pretty much always respond
 
 　　listening to
 
