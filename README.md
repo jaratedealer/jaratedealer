@@ -1,4 +1,4 @@
-　　![](https://files.catbox.moe/buydmd.png)
+　　![](https://files.catbox.moe/t8mwcx.png)
   
 　　swordvan & bloodysuit truther !! tf2 area people int ^_^
 
