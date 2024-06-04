@@ -4,7 +4,7 @@
 
 　　i follow whoever i find cool but dont mind softblocks if it makes you uncomfortable !!
   
-　　[sign here](https://retrospring.net/@coffeencola) i pretty much always respond
+　　[sign here](https://retrospring.net/@coffeencola) i always respond ![](https://files.catbox.moe/2p4iy1.gif)
 
 　　usually at tf2 area or docks, if not in any of those places im likely doing regi stuff
 
