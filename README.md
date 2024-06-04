@@ -1,6 +1,6 @@
 　　![](https://files.catbox.moe/f5cn4v.png)
   
-　　swordvan & bloodysuit truther !! tf2 area people int ^_^
+　　swordvan & bloodysuit truther !! tf2 area people int ^_^, im normally with my friend but he doesnt bite 
 
 　　i follow whoever i find cool but dont mind softblocks if it makes you uncomfortable !!
   
