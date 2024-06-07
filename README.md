@@ -1,12 +1,12 @@
 　　![](https://files.catbox.moe/f5cn4v.png)
   
-　　swordvan & bloodysuit truther !! tf2 area people int ^_^, im normally with my friend but he doesnt bite 
-
+　　bloodysuit, swordvan & napoleon complex truther !!
+  
 　　i follow whoever i find cool but dont mind softblocks if it makes you uncomfortable !!
   
 　　[sign here](https://retrospring.net/@coffeencola) i always respond ![](https://files.catbox.moe/2p4iy1.gif)
 
-　　usually at tf2 area or docks, if not in any of those places im likely doing regi stuff
+　　always at tf2 area, fandom int whenever! ^_^ im normally with my friend but he doesnt bite 
 
 　　![](https://files.catbox.moe/y2g22p.gif) ![](https://files.catbox.moe/iybrbt.gif) ![](https://files.catbox.moe/tdybon.png) ![](https://files.catbox.moe/ow7zxr.gif) ![](https://files.catbox.moe/3kdfnb.gif)
   
