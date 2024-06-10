@@ -1,12 +1,12 @@
 　　![](https://files.catbox.moe/djpcqw.webp)
   
-　　bloodysuit, swordvan & napoleon complex truther !!
+　　bloodysuit, swordvan & napoleon complex truther 
   
 　　i follow whoever i find cool but dont mind softblocks if it makes you uncomfortable !!
   
-　　[sign here](https://retrospring.net/@coffeencola) i always respond ![](https://files.catbox.moe/v8kmeb.gif)
+　　sign my [retrospring](https://retrospring.net/@coffeencola) i always respond! ![](https://files.catbox.moe/v8kmeb.gif)
 
-　　always at tf2 area, fandom int whenever! im normally with my friend but he doesnt bite ![](https://files.catbox.moe/803hvh.gif)
+　　always at tf2 area, fandom int whenever :-3 im normally with my friend but he doesnt bite ![](https://files.catbox.moe/803hvh.gif)
 
 　　![](https://files.catbox.moe/h4rsdb.gif) ![](https://files.catbox.moe/jstxhs.gif) ![](https://files.catbox.moe/9tyg3o.gif) ![](https://files.catbox.moe/vsn4hz.png) ![](https://files.catbox.moe/3e1c6j.gif)
   
