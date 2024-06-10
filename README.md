@@ -1,4 +1,4 @@
-　　![](https://files.catbox.moe/r4iy6h.webp)
+　　![](https://files.catbox.moe/djpcqw.webp)
   
 　　bloodysuit, swordvan & napoleon complex truther !!
   
