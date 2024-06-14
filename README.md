@@ -1,4 +1,6 @@
-　　![](https://files.catbox.moe/djpcqw.webp)
+　　hi strife!!! hope your day is superrr cool (its probably not if youre stalking me, but whatever) thanks for jeremy hes rad 10/10
+  
+  ![](https://files.catbox.moe/djpcqw.webp)
   
 　　bloodysuit, swordvan & napoleon complex truther 
   
@@ -15,8 +17,6 @@
 　　[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fgjbae1212%2Fhit-counter&count_bg=%23000000&title_bg=%236E4B90&icon=&icon_color=%23E7E7E7&title=views&edge_flat=true)](https://hits.seeyoufarm.com)
 
 　　weird speedingbullet fans are on thin ice, i tolerate normal fans bcs shipping wars is weird :-]
-  
-　　irls/kins of scout who talk to me for the sole purpose that im a fictkin of sniper/spy dni
 
 
 
