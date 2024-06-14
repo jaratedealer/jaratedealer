@@ -1,6 +1,6 @@
 　　![](https://files.catbox.moe/ta6rkt.webp)
   
-　　　　bloodysuit, swordvan &　　napoleon complex truther 
+　　　　bloodysuit, swordvan &　　snipercest truther 
   
 　　i follow whoever i find cool　　but dont mind softblocks if it makes you uncomfortable
 
