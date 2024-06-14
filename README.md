@@ -1,6 +1,4 @@
-　　hi strife!!! hope your day is superrr cool (its probably not if youre stalking me, but whatever) thanks for jeremy hes rad 10/10
-  
-　　![](https://files.catbox.moe/djpcqw.webp)
+  　![](https://files.catbox.moe/djpcqw.webp)
   
 　　bloodysuit, swordvan & napoleon complex truther 
   
