@@ -2,7 +2,7 @@
   
 　　　　bloodysuit, swordvan &　　snipercest truther 
     
-　　　miss mauling shippers do you even exist hello..
+　　　piss mauling shippers do you even exist hello..
   
 　　i follow whoever i find cool　　but dont mind softblocks if it makes you uncomfortable
 
