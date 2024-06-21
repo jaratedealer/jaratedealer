@@ -4,6 +4,8 @@
     
 　　　morbell n vanderbell protester come at me antis
 
+　　　always at the valve/tf2 area unless moving around with friends  
+
 　　　feel free to interact, im normally　with my friend mel but he doesnt bite ![](https://files.catbox.moe/55y45h.gif)
   
 　　　sign my [retrospring](https://retrospring.net/@coffeencola)　　i always respond
