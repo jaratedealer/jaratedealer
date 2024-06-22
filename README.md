@@ -2,7 +2,7 @@
   
 　　　bloodysuit, swordvan &　　snipercest truther 
     
-　　　morbell n vanderbell protester come at me antis
+　　　morbell, vanderbell & vandermatthews protester come at me antis
 
 　　　feel free to interact, im normally　with [mel](https://github.com/MellowAmaryllis) but he doesnt bite ![](https://files.catbox.moe/5pbf3z.gif)
   
