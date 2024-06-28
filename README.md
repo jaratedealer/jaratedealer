@@ -1,18 +1,16 @@
-　　　![](https://files.catbox.moe/wx34z9.png)
+　　　　　　　　　![](https://files.catbox.moe/ewviv0.png)
   
-　　　bloodysuit, swordvan &　　snipercest truther 
+　　　　　　　　　　　　　　　　　　　𐙚　bloodysuit, swordvan & snipercest truther 
     
-　　　morbell, vanderbell & vandermatthews protester come at me antis
+　　　　　　　　　　　　　　morbell, vanderbell ノ vandermatthews protester whiny rdr fans dni
 
-　　　feel free to interact, im normally　with [mel](https://github.com/MellowAmaryllis) but he doesnt bite ![](https://files.catbox.moe/5pbf3z.gif)
+　　　　　　　　　　　　　　　　free to interact, im normally with [mel](https://github.com/MellowAmaryllis) but he doesnt bite
   
-　　　sign my [retrospring](https://retrospring.net/@coffeencola)　　i always respond !
- 
-　　　![](https://files.catbox.moe/9ce3b2.gif) ![](https://files.catbox.moe/u6w0z1.gif) ![](https://files.catbox.moe/v2erfy.png) ![](https://files.catbox.moe/o2d2k4.gif) ![](https://files.catbox.moe/qao5m5.gif)
+　　　　　　　　　　　　　　　　　　　　sign my [retrospring](https://retrospring.net/@coffeencola) i always respond!
   
-　　　hi melly !!　　![](https://files.catbox.moe/dpzxrp.gif) ![](https://files.catbox.moe/jkrrv8.gif)
+　　　　　　　　　　　　　　　　　　　　　　　　　hi sniper my love ♡︎　　
 
-　　　[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fgjbae1212%2Fhit-counter&count_bg=%23000000&title_bg=%235F6026&icon=&icon_color=%23E7E7E7&title=views&edge_flat=true)](https://hits.seeyoufarm.com)
+　　　　　　　　　　　　　　　　　　　　　　　 　[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fgjbae1212%2Fhit-counter&count_bg=%23000000&title_bg=%234D2A26&icon=&icon_color=%23E7E7E7&title=views&edge_flat=true)](https://hits.seeyoufarm.com)
 
 
 
