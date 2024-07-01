@@ -10,7 +10,7 @@
   
 　　　　　　　　　　　　　　　　　　　　　　　　　hi sniper my love ♡︎　　
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=twicetheshot&color=3c3f16)
+　　　　　　　　　　　　　　　　　　　　　　　　　 ![](https://komarev.com/ghpvc/?username=twicetheshot&color=3c3f16)
 
 ![](https://files.catbox.moe/so6p3l.webp)
 
