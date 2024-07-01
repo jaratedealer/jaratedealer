@@ -1,6 +1,6 @@
 　　　　　　　　　　　　　　　![](https://files.catbox.moe/8y9umv.webp)
   
-　　　　　　　　　　　　　　　　　　　𐙚　bloodysuit, swordvan & snipercest truther 
+　　　　　　　　　　　　　　　　　　　𐙚　bloodysuit, snipercest & nellis truther 
     
 　　　　　　　　　　　　　　morbell, vanderbell ノ vandermatthews protester whiny rdr fans dni
 
