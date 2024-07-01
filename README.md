@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　　　　　　![](https://files.catbox.moe/50c1rf.webp)
+　　　　　　　　　　　　　　　![](https://files.catbox.moe/8y9umv.webp)
   
 　　　　　　　　　　　　　　　　　　　𐙚　bloodysuit, swordvan & snipercest truther 
     
@@ -11,7 +11,7 @@
 　　　　　　　　　　　　　　　　　　　　　　　　　hi sniper my love ♡︎　　
 
 
-![](https://files.catbox.moe/1jhoxh.webp)
+![](https://files.catbox.moe/so6p3l.webp)
 
 
 
